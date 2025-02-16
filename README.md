@@ -23,12 +23,6 @@ For any inquiries or to get involved, feel free to reach out to our chapter orga
   - Email: debasish.mitblr2022@learner.manipal.edu  
   - LinkedIn: https://www.linkedin.com/in/debasish-tripathy-48441b1b5/
 
-- **Dr. Gerard Deepak**
-  - Email: gerard.deepak@manipal.edu  
-  - LinkedIn: https://www.linkedin.com/in/dr-gerard-deepak-9a2a5424a
-
-- **Dr. Anagha P.**
-  - Email: p.anagha@manipal.edu  
 
 Join us in our mission to promote discussions and learning through the joy of exploring research papers!
 
